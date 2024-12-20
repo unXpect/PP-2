@@ -1,3 +1,4 @@
 # PP-2
-![image](https://github.com/user-attachments/assets/7257afbf-dfa2-4d61-a2c5-9bd4f1b839b3)
-![image](https://github.com/user-attachments/assets/d15d09d7-8efe-43d1-baad-e7dec62c9c9d)
+![image](https://github.com/user-attachments/assets/a250fce7-3e45-44b4-9562-c142fa6abebe)
+![image](https://github.com/user-attachments/assets/7e75fb78-fee6-4c2d-996c-fbd264bd0e3c)
+
